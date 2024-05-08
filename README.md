@@ -1,0 +1,2 @@
+# semanatecmayo
+pracyicas de clase
